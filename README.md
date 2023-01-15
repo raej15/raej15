@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @raej15
+- 👋 Hi, I’m Rae!
 - 🌱 I’m currently a computer science major at the University of South Carolina
 - 📫 my email is sej15@email.sc.edu
 
